@@ -7,7 +7,7 @@
 A single macro close-up of one ripe strawberry, cut in half and filling the
 frame: glossy deep-red flesh, tiny pale achenes, juice shine and water
 droplets, one fresh green leaf, on a dark charcoal background with a warm
-rim light. No text.
+rim light. No text. Judged on how delicious it looks.
 
 ## Run it
 
